@@ -1,1 +1,2 @@
 folder from khoa.go.kr
+https://figshare.com/articles/dataset/Supplementary_data_for_Evidence_that_the_Great_Pacific_Garbage_Patch_is_rapidly_accumulating_plastic_/5873142
